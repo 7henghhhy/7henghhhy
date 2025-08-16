@@ -15,4 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I'm currently studying on UM-SJTU JI. MAJOR IN ECE SOPHERMORE.
+I'm currently studying on UM-SJTU JI. 
+
+**MAJOR IN ECE SOPHERMORE**.
+
+Edit in *2025/8/16*.
