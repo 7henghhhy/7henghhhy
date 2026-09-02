@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 
 I'm currently studying on UM-SJTU JI. 
 
-**MAJO RING IN ECE SOPHERMORE**.
+**MAJORING IN ECE SOPHERMORE**.
 
 Edit in *2025/8/16*.
